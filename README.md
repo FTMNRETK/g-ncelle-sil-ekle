@@ -1,0 +1,1 @@
+# g-ncelle-sil-ekle
